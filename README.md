@@ -34,5 +34,5 @@
 
 ## 📫 Connect With Me
 
-- 🔗 **LinkedIn:** [https://www.linkedin.com/in/abhilash-mohanty-353850419/](https://www.linkedin.com/in/abhilash-mohanty-353850419/)
+- 🔗 **LinkedIn:** [https://www.linkedin.com/in/abhilash-mohanty](https://www.linkedin.com/in/abhilash-mohanty3/)
 - 📧 **Email:** [work.abhilashmohanty@gmail.com](mailto:work.abhilashmohanty@gmail.com)
